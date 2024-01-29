@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @myra0i
-- 🌱 I’m currently learning information technology
 - 💞️ I’m looking to collaborate on projects
 
 
